@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Savanna Beans | Engineering Student, Harvey Mudd College
 
-I'm glad you are here. I plan to talk about ...
+Savanna is entering her 3rd year as an engineering student at Harvey Mudd College. Ever since moving back home in March of 2020, she's been working on different projects. Click below to explore!
